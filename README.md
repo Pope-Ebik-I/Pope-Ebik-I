@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pope-Ebik-I and I like games (mainly FPS)
+- 👀 I’m interested in Eastern Orthodoxy
+- 🌱 I’m currently learning biomedical science
+- 💞️ I’m looking to collaborate on having fun
+- 📫 How to reach me: Incredibilis#9556 (Discord)
